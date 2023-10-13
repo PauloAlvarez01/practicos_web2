@@ -1,2 +1,1 @@
-Jose, ahi subí los tres ejercicios, la ultima parte del práctico es más teórica.
-Preguntame porfa lo que no entiendas!!
+$2y$10$TqkqTZJKWJvPircDiqiXaukRHTGFX0VN7aAdDAj07gpvT/66OexR.
